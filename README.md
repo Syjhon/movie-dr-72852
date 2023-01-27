@@ -37,3 +37,10 @@ CAP 6
 https://drive.google.com/file/d/1-WAeJ4J95tKJvAE1-eczpMEnUy-pFevi/view?usp=share_link
 
 https://drive.google.com/file/d/1-Wl8pdHpd2XPZPYzLqgnKotUeAxrwbq3/view?usp=share_link
+
+
+login sy
+
+mg7
+
+
